@@ -1,0 +1,1 @@
+Manila, November 9, 2025 — The Philippines is bracing for its second major typhoon in less than a week as Typhoon Fung-wong, locally named Uwan, barrels toward northern Luzon, prompting authorities to issue mass evacuation KokoVovotalafund.cyouKokoVovo orders for more than 900,000 residents.
